@@ -1,1 +1,0 @@
-# akustischer_stadtplan
